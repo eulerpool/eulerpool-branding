@@ -1,4 +1,4 @@
-![alt text](https://raw.githubusercontent.com/alleaktien/alleaktien-branding/main/logo/AlleAktien%20GmbH%20Logo%20Platzhalter.png)
+![alt text](https://raw.githubusercontent.com/eulerpool/eulerpool-branding/main/logo/Eulerpool%20Research%20Systems%20Banner.png)
 
 # Branding Kit von Eulerpool Research Systems
 
