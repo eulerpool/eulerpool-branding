@@ -16,6 +16,6 @@ Wir verweisen auf das offizielle Impressum auf [Eulerpool.com/imprint](https://w
 
 [Eulerpool.com](https://www.eulerpool.com)
 
-[Eulerpool Branding Kit](https://www.eulerpool.com/eulerpool-branding-kit-logos-marke)
+[Eulerpool Branding Kit](https://www.eulerpool.com/presse)
 
 
